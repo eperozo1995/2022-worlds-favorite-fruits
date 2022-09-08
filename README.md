@@ -1,1 +1,1 @@
-# 2022-worlds-favorite-fruits
+# 2022-worlds-favourite-fruits
